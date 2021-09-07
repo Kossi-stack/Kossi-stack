@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **Kfioklou2020@gmail.com**
 
-- ⚡ Fun fact **Never stop learning**
+- ⚡ Fun fact **I Never stop learning**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
