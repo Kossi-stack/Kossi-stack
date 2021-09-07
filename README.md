@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=kossi-stack&label=Profile%20views&color=0e75b6&style=flat" alt="kossi-stack" /> </p>
 
-- 💬 Ask me about **anything concerning civil engineering or programming i will be happy to answer you**
+- 💬 Ask me about **anything concerning civil engineering or programming. I will be happy to answer you.**
 
 - 📫 How to reach me **Kfioklou2020@gmail.com**
 
